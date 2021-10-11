@@ -3,7 +3,7 @@ Java Vorlesung Winter 2021/22
 
 Hoffentlich läuft dieses Semester so gut, dass ich die Klausur am Ende mitschreiben kann.
 
-So langsam habe ich die Faxen dicke von Corona und Co.
+So langsam habe ich die Faxen dicke von Corona, Long Covid und Co.
 
 Roland
 
